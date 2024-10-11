@@ -7,7 +7,7 @@ Presentamos unas pistas, notas iniciales de este proyecto de investigación, que
 
 Almeida, S. A. de, & Merhy, E. E. (2020). Micropolítica del trabajo vivo en salud mental: Composición por una ética antimanicomial en acto. *Revista Psicologia Política*, 20(47), 65-75. http://pepsic.bvsalud.org/scielo.php?script=sci_abstract&pid=S1519-549X2020000100006&lng=pt&nrm=iso&tlng=pt  
 
-Augé, M. (2027). *Los No Lugares. Espacios Del Anonimato*.(Edición conmemorativa). Gedisa Editorial.  
+Augé, M. (2017). *Los No Lugares. Espacios Del Anonimato*.(Edición conmemorativa). Gedisa Editorial.  
 
 Deleuze, G., & Guattari, F. (2004). *Mil Mesetas: Capitalismo y esquizofrenia* (6a ed.). PRE-TEXTOS.  
 
